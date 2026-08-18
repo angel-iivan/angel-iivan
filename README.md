@@ -10,7 +10,7 @@
           
       
 
-![image alt](https://github.com/angel-iivan/angel-iivan/blob/7773d973503a285bfd5099bbfb39013df31e6260/eff616d53f5e5707ad0c6ae8e12ad556%20(2).gif)
+![image alt](https://github.com/angel-iivan/angel-iivan/blob/873e5b27460c5cc03c6c49f2efed514ad29491a7/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif)
 
               i might be rude, 
            tell me if ur sensitive.

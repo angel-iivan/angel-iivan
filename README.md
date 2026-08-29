@@ -6,8 +6,9 @@
 
          he/they . taken . softsharing
           . . . . . . bmf! . . . . . . 
-           till kin ! isfp sx468 4w3
-          
+            abt me! (till irl trust)
+![image alt](https://github.com/angel-iivan/angel-iivan/blob/ce1f63af8d979c221d1e77c01a003e76b6146d61/Untitled543_20260825175403.png)
+
       
                i might be rude, 
             tell me if ur sensitive.

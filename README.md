@@ -4,14 +4,14 @@
 ![image alt](https://github.com/angel-iivan/angel-iivan/blob/3d1c45dd0279ccf08b271c5db659db3d5087f8bc/Untitled534_20260818081925.png)
 
 
-         he/they . taken . nonsharing 
+         he/they . taken . ivan's yume 
           . . . . . . bmf! . . . . . . 
             abt me! (till irl trust)
 ![image alt](https://github.com/angel-iivan/angel-iivan/blob/ce1f63af8d979c221d1e77c01a003e76b6146d61/Untitled543_20260825175403.png)
 
       
-               i might be rude, 
-           pls respect my boundaries.
+             i might be rude, ok? 
+             doubles iwec.. ok.. ?
              friends to c+h, iwcuf.
             
 

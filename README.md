@@ -17,3 +17,5 @@
 
 
 ![image alt](https://github.com/angel-iivan/angel-iivan/blob/873e5b27460c5cc03c6c49f2efed514ad29491a7/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif)
+
+        ill rmk my readme later.. ok..?

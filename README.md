@@ -17,21 +17,21 @@ ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" 
 
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc except im with my partner (๑ᵔ⤙ᵔ๑) !}}$
 
-
-
-<img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/a9252a26ba7a1889dd4db54f349ab078920b28bf/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif">
-
-$\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
-</p>
-<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin!</a> , <a href="https://github.com/ponytowns-rewards">ponytowns-rewards!</a>
-
-${\textsf{\color{#FFFEE2}thank you ! ᨳ𐔌՞҂ ֊՞𐦯ᜊ}}$
-
-<img align="center" width="200" src="https://github.com/angel-iivan/angel-iivan/blob/8b27d4058d9a2fa5e78c153eb5619d18471dfd2a/Untitled561_20260916141700.png">
-
-
 <details><summary> $${\color{#6E94D0} beloved \space ! }$$ </summary> ෆ
 <a href="https://github.com/sv1nzxu">boyfriend!</a>
 ﹌﹌﹌﹌﹌﹌﹌
 <img align="center" width="150" src="https://github.com/angel-iivan/angel-iivan/blob/2471ec82a5c07426ea9f9e96c31e19dc4343c905/Untitled561_20260916142713.png">
  ${\textsf{\color{#6E94D0}𐔌doubles iwc.. or dni ok.𐦯 }}$
+</details>
+
+<details><summary> $${\color{#FAB2CF} nominations \space ! }$$ </summary>
+<img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/a9252a26ba7a1889dd4db54f349ab078920b28bf/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif">
+$\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
+</p>
+<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin!</a> , <a href="https://github.com/ponytowns-rewards">ponytowns-rewards!</a>
+${\textsf{\color{#FFFEE2}thank you ! ᨳ𐔌՞҂ ֊՞𐦯ᜊ}}$
+</summary></details>
+
+<img align="center" width="200" src="https://github.com/angel-iivan/angel-iivan/blob/8b27d4058d9a2fa5e78c153eb5619d18471dfd2a/Untitled561_20260916141700.png">
+
+

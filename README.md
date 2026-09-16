@@ -19,7 +19,9 @@ ${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc except im with my partner (๑ᵔ�
 
 
 
-$$ \color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $$
+<img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/a9252a26ba7a1889dd4db54f349ab078920b28bf/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif">
+
+$\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
 </p>
 <a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin!</a> , <a href="https://github.com/ponytowns-rewards">ponytowns-rewards!</a>
 

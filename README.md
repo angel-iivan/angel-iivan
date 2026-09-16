@@ -15,14 +15,24 @@ ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" 
   ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
 
 
+<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/dccd6b1fc43fb1c40124b5144c2150ad5fed5798/Untitled561_20260916142913.png">
+
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}}$
+
 
 <details><summary> $${\color{#FFFEE2} about \space me. }$$ </summary>
 ${\textsf{\color{#6E94D0}he/they, genderfluid-boyflux, isfp sx468 4w3.}}$
+
+<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">
+
  
 ${\textsf{\color{#FAB2CF}int and c+h enc! except im with my partner.  }}$
+
+<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">
+
 ${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's fictkin! doubles iwec.  }}$
 </details>
+
 
 <details><summary> $${\color{#6E94D0} beloved \space ! }$$ </summary> ෆ
 <a href="https://github.com/sv1nzxu">boyfriend!</a>

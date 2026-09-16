@@ -10,9 +10,11 @@
 <div align="center">
 
  
- ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ 
+${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ 
 
-${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc exc im with my partner !}}$
+  ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
+
+${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc except im with my partner (๑ᵔ⤙ᵔ๑) !}}$
 
 
 <img align="center" width="200" src="https://github.com/angel-iivan/angel-iivan/blob/daeddb3610d1cc0ed33f7c38de7b9791c10b05e9/Untitled561_20260916143038.png">

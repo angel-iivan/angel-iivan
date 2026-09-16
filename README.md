@@ -12,10 +12,9 @@
  
 ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" src="https://github.com/angel-iivan/angel-iivan/blob/daeddb3610d1cc0ed33f7c38de7b9791c10b05e9/Untitled561_20260916143038.png">
 
-  ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
 
+<img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/dccd6b1fc43fb1c40124b5144c2150ad5fed5798/Untitled561_20260916142913.png"> ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
 
-<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/dccd6b1fc43fb1c40124b5144c2150ad5fed5798/Untitled561_20260916142913.png">
 
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}}$
 
@@ -23,12 +22,12 @@ ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}
 <details><summary> $${\color{#FFFEE2} about \space me. }$$ </summary>
 ${\textsf{\color{#6E94D0}he/they, genderfluid-boyflux, isfp sx468 4w3.}}$
 
-<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">
+<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
  
 ${\textsf{\color{#FAB2CF}int and c+h enc! except im with my partner.  }}$
 
-<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">
+<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
 ${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's fictkin! doubles iwec.  }}$
 </details>

@@ -19,7 +19,7 @@ ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" 
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}}$
 
 
-<details><summary> $${\color{#FFFEE2} about \space me. }$$ </summary>
+<details><summary> $${\color{#FFFEE2} about \space me. }$$ <img align="center" width="35" src="https://github.com/angel-iivan/angel-iivan/blob/d329f44d5410091b1f07e78c5505072100a4a876/Untitled561_20260916171811.png"> </summary>
 ${\textsf{\color{#6E94D0}he/they, genderfluid-boyflux, isfp sx468 4w3.}}$
 
 <img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">

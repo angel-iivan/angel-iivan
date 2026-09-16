@@ -10,7 +10,7 @@
 <div align="center">
 
  
-↑ ${\textsf{\color{#6E94D0}Boo!! }}$ 
+ ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ 
 
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc exc im with my partner !}}$
 

@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=angel-iivan&color=6E94D0&label=᧔ෆ᧓&style=flat-square)
+![Github Views](https://views.igorkowalczyk.dev/api/badge/angel-iivan?label=᧔ෆ᧓&labelColor=FFFEE2&color=6E94D0)
 
 <img align="center" width="450" src="https://github.com/angel-iivan/angel-iivan/blob/0f7d9fcc05b81f27514f70f408510e74af7ad486/Untitled534_20260916141153.png">
 

@@ -24,6 +24,8 @@ friends to c+h, iwcuf.
 
 ![image alt](https://github.com/angel-iivan/angel-iivan/blob/873e5b27460c5cc03c6c49f2efed514ad29491a7/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif)
 
+<img width="20" height="18" alt="wing" src="https://i.postimg.cc/Nf96MVj7/mo38.gif" />
+
 
 thank you, [pt-heavyfictkin](https://github.com/pt-heavyfictkin) ,  [Ponytowns-rewards](https://github.com/Ponytowns-rewards) ! 
         

@@ -20,4 +20,4 @@ ${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc except im with my partner (๑ᵔ�
 <img align="center" width="200" src="https://github.com/angel-iivan/angel-iivan/blob/daeddb3610d1cc0ed33f7c38de7b9791c10b05e9/Untitled561_20260916143038.png">
 
 <details><summary> $${\color{#6E94D0} beloved \space ! }$$ </summary> ෆ
-<a href="https://github.com/sv1nxzu">boyfriend!</a>
+<a href="https://github.com/sv1nzxu">boyfriend!</a>

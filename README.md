@@ -13,7 +13,7 @@
 ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" src="https://github.com/angel-iivan/angel-iivan/blob/daeddb3610d1cc0ed33f7c38de7b9791c10b05e9/Untitled561_20260916143038.png">
 
 
-<img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/dccd6b1fc43fb1c40124b5144c2150ad5fed5798/Untitled561_20260916142913.png"> ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
+ ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
 
 
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}}$
@@ -22,18 +22,18 @@ ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}
 <details><summary> $${\color{#FFFEE2} about \space me. }$$ <img align="center" width="35" src="https://github.com/angel-iivan/angel-iivan/blob/d329f44d5410091b1f07e78c5505072100a4a876/Untitled561_20260916171811.png"> </summary>
 ${\textsf{\color{#6E94D0}he/they, genderfluid-boyflux, isfp sx468 4w3.}}$
 
-<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
+<img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
  
 ${\textsf{\color{#FAB2CF}int and c+h enc! except im with my partner.  }}$
 
-<img align="center" width="100" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
+<img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
 ${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's fictkin! doubles iwec.  }}$
 </details>
 
 
-<details><summary> $${\color{#6E94D0} beloved \space ! }$$ </summary> ෆ
+<details><summary> $${\color{#6E94D0} beloved \space ! }$$ <img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/dccd6b1fc43fb1c40124b5144c2150ad5fed5798/Untitled561_20260916142913.png"> </summary> ෆ
 <a href="https://github.com/sv1nzxu">boyfriend!</a>
 ﹌﹌﹌﹌﹌﹌﹌
 <img align="center" width="150" src="https://github.com/angel-iivan/angel-iivan/blob/2471ec82a5c07426ea9f9e96c31e19dc4343c905/Untitled561_20260916142713.png">

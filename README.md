@@ -50,4 +50,8 @@ ${\textsf{\color{#FFFEE2}thank you ! ᨳ𐔌՞҂ ֊՞𐦯ᜊ}}$
 
 <img align="center" width="130" src="https://github.com/angel-iivan/angel-iivan/blob/8b27d4058d9a2fa5e78c153eb5619d18471dfd2a/Untitled561_20260916141700.png">
 
+
+
+[guns.lol](https://guns.lol/iloveivan) — [pronouns](https://en.pronouns.page/@bunniivan)
+
 <img align="center" width="450" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">

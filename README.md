@@ -24,8 +24,9 @@ $$ \color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
 </p>
 <a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin!</a> , <a href="https://github.com/ponytowns-rewards">ponytowns-rewards!</a>
 
+${\textsf{\color{#FFFEE2}thank you ! ᨳ𐔌՞҂ ֊՞𐦯ᜊ}}$
 
-
+<img align="center" width="200" src="https://github.com/angel-iivan/angel-iivan/blob/8b27d4058d9a2fa5e78c153eb5619d18471dfd2a/Untitled561_20260916141700.png">
 
 
 <details><summary> $${\color{#6E94D0} beloved \space ! }$$ </summary> ෆ

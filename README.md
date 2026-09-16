@@ -24,4 +24,3 @@ ${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc except im with my partner (๑ᵔ�
 ﹌﹌﹌﹌﹌﹌﹌
 <img align="center" width="150" src="https://github.com/angel-iivan/angel-iivan/blob/2471ec82a5c07426ea9f9e96c31e19dc4343c905/Untitled561_20260916142713.png">
  ${\textsf{\color{#6E94D0}𐔌doubles iwc.. or dni ok.𐦯 }}$
-

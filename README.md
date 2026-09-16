@@ -40,7 +40,7 @@ ${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's fictkin! doubles iwec.  }
  ${\textsf{\color{#6E94D0}𐔌doubles iwc.. or dni ok.𐦯 }}$
 </details>
 
-<details><summary> $${\color{#FAB2CF} nominations \space ! }$$ </summary>
+<details><summary> $${\color{#FAB2CF} nominations \space ! }$$ <img align="center" width="43" src="https://github.com/angel-iivan/angel-iivan/blob/15e208813f228c4a0da8c50fd906e478e7952452/Untitled561_20260916171910.png"> </summary>
 <img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/a9252a26ba7a1889dd4db54f349ab078920b28bf/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif">
 $\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
 </p>

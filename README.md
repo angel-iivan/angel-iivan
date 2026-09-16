@@ -15,7 +15,14 @@ ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" 
   ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
 
 
-${\textsf{\color{#FFFEE2}⁠✧ ⁠。c+h enc except im with my partner (๑ᵔ⤙ᵔ๑) !}}$
+${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! ciel's here. . . 𐔌՞. .՞𐦯}}$
+
+<details><summary> $${\color{#FFFEE2} about \space me. }$$ </summary>
+${\textsf{\color{#6E94D0}he/they, genderfluid-boyflux, isfp sx468 4w3.}}$
+ 
+${\textsf{\color{#FAB2CF}int and c+h enc! except im with my partner.  }}$
+${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's fictkin! doubles iwec.  }}$
+</details>
 
 <details><summary> $${\color{#6E94D0} beloved \space ! }$$ </summary> ෆ
 <a href="https://github.com/sv1nzxu">boyfriend!</a>
@@ -32,6 +39,6 @@ $\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
 ${\textsf{\color{#FFFEE2}thank you ! ᨳ𐔌՞҂ ֊՞𐦯ᜊ}}$
 </summary></details>
 
-<img align="center" width="200" src="https://github.com/angel-iivan/angel-iivan/blob/8b27d4058d9a2fa5e78c153eb5619d18471dfd2a/Untitled561_20260916141700.png">
+<img align="center" width="130" src="https://github.com/angel-iivan/angel-iivan/blob/8b27d4058d9a2fa5e78c153eb5619d18471dfd2a/Untitled561_20260916141700.png">
 
-
+<img align="center" width="450" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">

@@ -24,7 +24,7 @@ ${\textsf{\color{#6E94D0}he/they, genderfluid-boyflux, isfp sx468 4w3.}}$
 <img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
  
-${\textsf{\color{#FAB2CF}int and c+h enc! except im with my partner.  }}$
+${\textsf{\color{#FAB2CF}int and c+h enc! except im with my boyfriend.  }}$
 
 <img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 

@@ -28,7 +28,7 @@ ${\textsf{\color{#FAB2CF}int and c+h enc! except im with my boyfriend.  }}$
 
 <img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
-${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's fictkin! doubles iwec.  }}$
+${\textsf{\color{#FFFEE2}ivan's yumeshipper and till's hvy fictkin! doubles iwec.  }}$
 </details>
 
 

@@ -6,14 +6,14 @@
 
 <img align="center" width="450" src="https://github.com/angel-iivan/angel-iivan/blob/0f7d9fcc05b81f27514f70f408510e74af7ad486/Untitled534_20260916141153.png">
 
-
-<div align="center">
-
  
 ${\textsf{\color{#6E94D0}⤷ ゛Boo!! ‚‚ }}$ <img align="center" width="30" src="https://github.com/angel-iivan/angel-iivan/blob/daeddb3610d1cc0ed33f7c38de7b9791c10b05e9/Untitled561_20260916143038.png">
 
 
 ${\textsf{\color{#FFFEE2}⁠✧ ⁠。hihello! call me ciel / till ! 𐔌՞. .՞𐦯}}$
+${\textsf{\color{#FFFEE2}vin's certified prettyboy ⊹ ࣪ ˖ ໒꒱ }}$
+
+
 
 ${\textsf{\color{#FAB2CF}⡞⠳⣄⣀⣠⠞⢷ ֹ۪ }}$ 
 

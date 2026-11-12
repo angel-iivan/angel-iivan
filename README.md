@@ -28,7 +28,7 @@ ${\textsf{\color{#FAB2CF}int and c+h enc! except im with my boyfriend.  }}$
 
 <img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
-${\textsf{\color{#FFFEE2}ivan's gachikoi and till's fictkin.  }}$
+${\textsf{\color{#FFFEE2}ivan's gachikoi, kamioshi and till's fictkin.  }}$
 </details>
 
 
@@ -36,7 +36,7 @@ ${\textsf{\color{#FFFEE2}ivan's gachikoi and till's fictkin.  }}$
 <a href="https://github.com/sv1nzxu">boyfriend!</a>
 ﹌﹌﹌﹌﹌﹌﹌
 <img align="center" width="150" src="https://github.com/angel-iivan/angel-iivan/blob/2471ec82a5c07426ea9f9e96c31e19dc4343c905/Untitled561_20260916142713.png">
- ${\textsf{\color{#6E94D0}𐔌i love ivan sm𐦯 }}$
+ ${\textsf{\color{#6E94D0}𐔌i block freely𐦯 }}$
 </details>
 
 <details><summary> $${\color{#FAB2CF} nominations \space ! }$$ <img align="center" width="43" src="https://github.com/angel-iivan/angel-iivan/blob/15e208813f228c4a0da8c50fd906e478e7952452/Untitled561_20260916171910.png"> </summary>

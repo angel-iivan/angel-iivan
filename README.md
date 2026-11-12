@@ -54,6 +54,6 @@ $\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
 
 
 
-[guns.lol](https://guns.lol/...) — [pronouns](https://en.pronouns.page/@bunniivan)
+[guns.lol](https://guns.lol/) — [pronouns](https://en.pronouns.page/@bunniivan)
 
 <img align="center" width="450" src="https://github.com/angel-iivan/angel-iivan/blob/be033a87cac776d1f1e92a4155eef1f35185791c/Untitled534_20260916141226.png">

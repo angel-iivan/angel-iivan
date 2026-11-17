@@ -24,7 +24,7 @@ ${\textsf{\color{#6E94D0}he/they, genderfluid/boyflux, isfp sx468 4w3.}}$
 <img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
  
-${\textsf{\color{#FAB2CF}int freely (unless my name says otherwise), c+h4f.  }}$
+${\textsf{\color{#FAB2CF} int freely, c+h4f. i block freely.  }}$
 
 <img align="center" width="65" src="https://github.com/angel-iivan/angel-iivan/blob/1a325838018fd712e7f55fcea282fdcc3777cf0e/Untitled534_20260916171302.png">
 
@@ -36,7 +36,7 @@ ${\textsf{\color{#FFFEE2}ivan's gachikoi, kamioshi and till's fictkin.  }}$
 <a href="https://github.com/sv1nzxu">boyfriend!</a>
 ﹌﹌﹌﹌﹌﹌﹌
 <img align="center" width="150" src="https://github.com/angel-iivan/angel-iivan/blob/2471ec82a5c07426ea9f9e96c31e19dc4343c905/Untitled561_20260916142713.png">
- ${\textsf{\color{#6E94D0}𐔌i block freely𐦯 }}$
+ ${\textsf{\color{#6E94D0}𐔌doubles hvy dni.𐦯 }}$
 </details>
 
 <details><summary> $${\color{#FAB2CF} nominations \space ! }$$ <img align="center" width="43" src="https://github.com/angel-iivan/angel-iivan/blob/15e208813f228c4a0da8c50fd906e478e7952452/Untitled561_20260916171910.png"> </summary>

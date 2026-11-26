@@ -43,7 +43,7 @@ ${\textsf{\color{#FFFEE2}ivan's gachikoi, kamioshi and till's fictkin.  }}$
 <img align="center" width="50" src="https://github.com/angel-iivan/angel-iivan/blob/a9252a26ba7a1889dd4db54f349ab078920b28bf/0942c0425aaf1174ab10ad58d10e8b0a%20(1).gif">
 $\color{#FFFEE2}{\large\textsf{PT }}\color{#FAB2CF}{\large\textsf{AWARDS!:}} $
 </p>
-<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin!</a> , <a href="https://github.com/ponytowns-rewards">ponytowns-rewards!</a> , <a href="https://github.com/pt-ship-nominations">pt-ship-nominations!</a> , <a href="https://github.com/pt-fashion">pt-fashion!</a> , <a href="https://github.com/music-town">music-town!</a> , <a href="https://github.com/pt-all-of-fans">pt-all-of-fans!</a>
+<a href="https://github.com/pt-heavyfictkin">pt-heavyfictkin!</a> , <a href="https://github.com/ponytowns-rewards">ponytowns-rewards!</a> , <a href="https://github.com/pt-ship-nominations">pt-ship-nominations!</a> , <a href="https://github.com/pt-fashion">pt-fashion!</a> , <a href="https://github.com/music-town">music-town!</a> , <a href="https://github.com/pt-hall-of-fans">pt-hall-of-fans!</a>
 
 
 
